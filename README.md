@@ -1,4 +1,8 @@
-<img align="left" width="342" height="269" alt="Untitled127_20260504202830" src="https://github.com/user-attachments/assets/30445298-e66c-44a9-9e89-87352c016e3a"
+
+
+https://github.com/user-attachments/assets/99d07e1e-3045-4e24-8c29-8d89f707e543
+
+
 /> <sup>  　　　　　　hii~ Its ya boy Sevhaine! one of the many alt... </sup>
 <br />
  <sup>  　　　　　　no links because im MYSTERIOUS like dat </sup>
@@ -13,7 +17,3 @@
 <br />
 <br />
  　　<img width="75" height="18" alt="e60bb86c_original" src="https://github.com/user-attachments/assets/98ea2605-299b-4a3b-b8f3-ca53f0fc04fe" />
-
-
-https://github.com/user-attachments/assets/3a683887-4edc-4984-bce8-f534ebb8c592
-
