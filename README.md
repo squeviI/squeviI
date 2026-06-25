@@ -1,3 +1,3 @@
-https://github.com/user-attachments/assets/99d07e1e-3045-4e24-8c29-8d89f707e543
+<img width="2048" height="1080" alt="IMG_7240" src="https://github.com/user-attachments/assets/97677eff-b8df-45ff-a867-76ccf7ae461d" />
 
-<sup> pfp cr @xoria_00 </sup>
+<sup> art @lynfiess @sadilynx </sup>
