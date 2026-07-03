@@ -1,3 +1,2 @@
-<img width="2048" height="1080" alt="IMG_7240" src="https://github.com/user-attachments/assets/97677eff-b8df-45ff-a867-76ccf7ae461d" />
-
-　　　　　　art cr @lynfiess @sadilynx
+<img width="699" height="627" alt="IMG_7717" src="https://github.com/user-attachments/assets/add285b4-582e-453f-a2a7-bd7e7e53a2d5" />
+　　　　　　art cr @Antil1qu3
